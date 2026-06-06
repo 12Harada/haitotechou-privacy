@@ -34,4 +34,4 @@
 
   プライバシーポリシーに関するお問い合わせは以下までご連絡ください。
 
-  メール：12haradaut@gmail.com
+  メール：minibook1369@gmail.com
